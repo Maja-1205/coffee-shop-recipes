@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 8 oz Cold brew
-- 1/4 cup of 2% milk
+- 1/4 cup of 2% cow milk
 - 1 Tbsp powdered sugar
 - 1/4 tsp vanilla extract
 - Ice
